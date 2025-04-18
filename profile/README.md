@@ -2,6 +2,7 @@ What is Crazy Cattle 3D Game?
 Crazy Cattle 3D Game is a wild and captivating take on the battle royale genre, where players control explosive sheep in a chaotic survival showdown.
 
 [Play Crazy Cattle 3D Game](https://crazycattlegame.org)
+[Play Crazy Cattle 3D Game](https://crazycattle-3d.run)
 
 Experience thrilling action across dynamic maps, including the lush hills of Ireland, the fiery landscapes of Iceland, and the towering peaks of New Zealand. This game uniquely blends humor with strategic gameplay, offering players an unforgettable experience as they dash, dodge, and detonate their way to victory.
 
@@ -18,3 +19,4 @@ Crazy Cattle 3D Game offers a refreshing twist on the battle royale experience, 
 Ultimately, Crazy Cattle 3D Game is a creative labor of love from an indie developer that celebrates unconventional gameplay. Dive into this hilarious world of explosive sheep and discover the excitement that players everywhere are raving about! Download Crazy Cattle 3D Game today and join the growing community celebrating the joy and strategy of this outrageous multiplayer experience!
 
 [Visit the Official Site](https://crazycattlegame.org)
+[Visit the Official Site 2](https://crazycattle-3d.run)
